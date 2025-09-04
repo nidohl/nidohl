@@ -12,3 +12,5 @@ hi guys this is real nid typing and i HATE ELLIE i love to BULLY HER
 ^^ GUYS THIS WAS ELLIE NOY ME
 
 guys hi that was past nid i didnt take my meds this was ALL me !!
+
+i hwte you ellie. blocking you. never matching with you again. ITS ALL IN THE PAST.
