@@ -8,3 +8,5 @@
 hey the fuck out
 
 hi guys this is real nid typing and i HATE ELLIE i love to BULLY HER
+^^
+GUYS THIS WAS ELLIE NOY ME
