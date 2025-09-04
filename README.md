@@ -16,3 +16,5 @@ guys hi that was past nid i didnt take my meds this was ALL me !!
 i hwte you ellie. blocking you. never matching with you again. ITS ALL IN THE PAST.
 
 love u too bestie looking forward to when we next match 
+
+whatever. im ignoring you for now.
