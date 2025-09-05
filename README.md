@@ -16,3 +16,6 @@
 
 ^^
 this wasn't my doing.. ellie has middle school humor 
+
+^^
+acting like half your vocabulary isnt words like skibidi?
