@@ -22,3 +22,6 @@ acting like half your vocabulary isnt words like skibidi?
 
 ^^
 heh thats not very omega of you ellie, you see my alpha aura radiating off you like a lingering fart someone runs into?
+
+^^ 
+that was poetic in all the wrong ways. i think you're an omega taking scent blockers or whatever its called #ABO :/
