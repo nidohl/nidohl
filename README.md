@@ -10,3 +10,5 @@ hi guys my name is nid
 i am a mole-rat therian and im currently saving for a fursuit !!
 
 please support me on tiktok over at @ loretta.weinhouse
+
+BRO WHAT IS WRONG WITH YOU?? CHAT I DIDNT DO THIS IM NOT A FURRY ELLIE SECRETLY IS AND TAKING IT OUT ON ME - REAL NID
