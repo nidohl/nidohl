@@ -12,3 +12,5 @@ i am a mole-rat therian and im currently saving for a fursuit !!
 please support me on tiktok over at @ loretta.weinhouse
 
 please do not walk through my pony as i have VERY bad phantom pain. thanks.
+
+ELLIE DO NOT MF SAY THAT. GUYS PLS I PROMISE IM NOT CHRONICALLY ONLINE. ELLIE HAS 200+ DAYS ON PONYTOWN BTW
