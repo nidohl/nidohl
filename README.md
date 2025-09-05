@@ -19,3 +19,5 @@ this wasn't my doing.. ellie has middle school humor
 
 ^^
 acting like half your vocabulary isnt words like skibidi?
+^^
+heh thats not very omega of you ellie, you see my alpha aura radiating off you like a lingering fart someone runs into?
