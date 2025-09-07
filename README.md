@@ -9,7 +9,4 @@
   <img width="750" height="138" src="https://files.catbox.moe/ce4e44.jpg">
 </p>
 
-^^ 
-nid here letting you guys know i LOVE the saja boys and mystery is my favourite theyre all so fine!
-
-especially jinu!! sugoi !!!! >_<
+ignore that the famn ghost from ghosbusters hacked onto my account AWOOP JUMPSCARE
