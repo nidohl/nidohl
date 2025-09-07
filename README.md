@@ -12,4 +12,4 @@
 ^^ 
 nid here letting you guys know i LOVE the saja boys and mystery is my favourite theyre all so fine!
 
-TH9S IS NTO FUCKING ME ISTG ELLIE IMMA DOX YOU
+especially jinu!! sugoi !!!! >_<
