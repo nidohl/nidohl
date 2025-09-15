@@ -12,3 +12,6 @@
 hi guys nid here i LOVE diluc i have c4 hes my main 4ever <33 
 
 diluc skins on ponytown please int i love him hes my FAVOURITEEEE BOYYYY.
+
+^^
+THIS WAS ELLIE
