@@ -9,9 +9,6 @@
   <img width="750" height="138" src="https://files.catbox.moe/iok0mn.jpg">
 </p>
 
-hi guys nid here i LOVE diluc i have c4 hes my main 4ever <33 
+i love diluc so much 
 
-diluc skins on ponytown please int i love him hes my FAVOURITEEEE BOYYYY.
-
-^^
-THIS WAS ELLIE
+my horn is glowing for him.
