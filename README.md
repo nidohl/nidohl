@@ -9,6 +9,10 @@
   <img width="750" height="138" src="https://files.catbox.moe/iok0mn.jpg">
 </p>
 
-i love diluc so much 
+WE DONTTTTTTTT TALK ABOUTTTTTTT
 
-my horn is glowing for him.
+WE DONTTT HAVE THE TIMEEEEE
+
+WE THOUGHT LOVE WAS SOMETHING
+
+WE WERNT MEANT TO FIND???
