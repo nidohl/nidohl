@@ -12,3 +12,5 @@ WE DONTTT HAVE THE TIMEEEEE
 WE THOUGHT LOVE WAS SOMETHING
 
 WE WERNT MEANT TO FIND???
+
+guys i think ellie is the coolest and im so honoured to be in her presence on ponytown rn
