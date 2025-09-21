@@ -10,3 +10,7 @@ my name is nid and i NEVER tell my friends i love them
 i HATE ellie and i like to bully her on a daily basis
 
 i NEVER say 'i love you' first and i am a very jealous person
+ALL ELLIE
+
+^^
+GUYS ELLIE IS TICKED THAT I DONT SAY I LOVE YOU TO HER. THE 3 BIG WORDS AND SHE GETS PISSSSSYYYY AND SHE HATES ME SO VERY MUCH - NID
