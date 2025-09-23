@@ -10,3 +10,5 @@ heads up i suffer from phantom pain !! its very real, please do not bully me. i 
 do not sit with me without permission
 
 GUYS I KIN DILUC SM HES LITERALLY ME DNI IF YOU THINK YOU'RE DILUC I AM DILUC
+
+GUYS PLEASE THIS ISNT ME I BEG OF YOU PLS ITS ELLIE -NID
