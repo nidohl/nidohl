@@ -8,6 +8,5 @@
 heads up i suffer from phantom pain !! its very real, please do not bully me. i hate being bullied. 
 
 do not sit with me without permission
-^^
 
-guys she keeps deleting iT PLS
+GUYS I KIN DILUC SM HES LITERALLY ME DNI IF YOU THINK YOU'RE DILUC I AM DILUC
