@@ -4,11 +4,3 @@
 
 <p align="center">
   <img width="320" height="100" src="https://spotify-github-profile.kittinanx.com/api/view?uid=mhx3obk47u7fomxlkrbs95dvq&cover_image=true&theme=novatorem&show_offline=false&background_color=555f53&interchange=false&bar_color=6bb36b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)">
-
-heads up i suffer from phantom pain !! its very real, please do not bully me. i hate being bullied. 
-
-do not sit with me without permission
-
-GUYS I KIN DILUC SM HES LITERALLY ME DNI IF YOU THINK YOU'RE DILUC I AM DILUC
-
-GUYS PLEASE THIS ISNT ME I BEG OF YOU PLS ITS ELLIE -NID
