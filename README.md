@@ -9,4 +9,4 @@
   <img width="650" height="650" src="https://files.catbox.moe/0gvrth.png">
 </p>
 
-&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ![nid and ellie (1) (1)](https://github.com/user-attachments/assets/5fb1f4a4-58ad-4af1-b8dc-3de06eef394e)
+&emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ![nid and ellie (1) (1)](https://github.com/user-attachments/assets/5fb1f4a4-58ad-4af1-b8dc-3de06eef394e)
