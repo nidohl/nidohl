@@ -8,7 +8,3 @@
 <p align="center">
   <img width="650" height="650" src="https://files.catbox.moe/0gvrth.png">
 </p>
-
-<p align="center">
-  <img width="208" height="265" src="https://files.catbox.moe/iq301a.gif">
-</p>
