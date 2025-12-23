@@ -4,7 +4,7 @@
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair&pause=1000&color=A4353E&center=true&width=435&lines=%E2%9D%9D+august%2C+honey%2C+you+were+mine.+%E2%9D%9E)](https://git.io/typing-svg)
 
 <p align="center">
-  <img width="650" height="650" src="https://files.catbox.moe/2cz1vn.png">
+  <img width="650" height="650" src="https://files.catbox.moe/x2rwpq.png">
 </p>
 
 GUYS LOOK AT MY BABY ^^
