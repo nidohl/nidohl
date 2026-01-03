@@ -1,6 +1,8 @@
-heads up! i am a fictionkin of Oh from the 2015 movie 'home' and i would appreciate doubles not interacting..oh my goodness im shifting..FEEEEEEEEEL THE LIGHT - nid
+heads up! i am a fictionkin of Oh from the 2015 movie 'home' and i would appreciate doubles not interacting..oh my goodness im shifting..FEEEEEEEEEL THE LIGHT - ellie
 
-sorry about that guys -nid
+sorry about that guys -ellie
+
+ELLIE ISTGGGGGGGGG GET OUT. you know, you fictionkin on the little squirrel from nut job, the one who has the crush on the female brown squirrel -nid
 
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
