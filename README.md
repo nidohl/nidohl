@@ -1,5 +1,7 @@
 hi for when u read this nid i love you loser - ellie
 
+I LOVE YOU MORE MORE MORE MORE MORE MWAH MWAH -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
