@@ -4,6 +4,8 @@ I LOVE YOU MORE MORE MORE MORE MORE MWAH MWAH -NID
 
 no u dont mwah mwah ALSO YOU'RE LISTENING TO TANGLED :( - ellie
 
+YEAH I DOOOO!! AND I AMMM I HAVE IT ON LOOP WINKS -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
