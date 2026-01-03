@@ -1,4 +1,6 @@
-heads up! i am a fictionkin of Oh from the 2015 movie 'home' and i would appreciate doubles not interacting..oh my goodness im shifting..FEEEEEEEEEL THE LIGHT - nid
+heads up! i am a fictionkin of Oh from the 2015 movie 'home' and i would appreciate doubles not interacting..oh my goodness im shifting..FEEEEEEEEEL THE LIGHT - ellie
+
+what the hell is wrong with you. -nid
 
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
