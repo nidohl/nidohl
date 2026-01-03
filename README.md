@@ -1,12 +1,4 @@
-heads up! i am a fictionkin of Oh from the 2015 movie 'home' and i would appreciate doubles not interacting..oh my goodness im shifting..FEEEEEEEEEL THE LIGHT - ellie
-
-sorry about that guys -ellie
-
-ELLIE ISTGGGGGGGGG GET OUT. you know, you fictionkin on the little squirrel from nut job, the one who has the crush on the female brown squirrel -nid
-
-ok then can you fictionkin the female brown squirrel :IHSVETEARS: - ellie
-
-okay we got the flirt master up in here,, i'll take you up on that offer :IHSVETEARS: -nid
+hi for when u read this nid i love you loser - ellie
 
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
@@ -20,9 +12,5 @@ okay we got the flirt master up in here,, i'll take you up on that offer :IHSVET
 <p align="center">
   <img width="650" height="650" src="https://files.catbox.moe/x2rwpq.png">
 </p>
-
-GUYS LOOK AT MY BABY ^^
-
-^ guys shes so talented i COULD scream - ellie
 
 &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ![nid and ellie (1) (1)](https://github.com/user-attachments/assets/5fb1f4a4-58ad-4af1-b8dc-3de06eef394e)
