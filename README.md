@@ -4,7 +4,7 @@ sorry about that guys -ellie
 
 ELLIE ISTGGGGGGGGG GET OUT. you know, you fictionkin on the little squirrel from nut job, the one who has the crush on the female brown squirrel -nid
 
-ok then can you fictionkin the female brown squirrel :IHSVETEARS: 
+ok then can you fictionkin the female brown squirrel :IHSVETEARS: - ellie
 
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
