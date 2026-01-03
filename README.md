@@ -6,6 +6,8 @@ ELLIE ISTGGGGGGGGG GET OUT. you know, you fictionkin on the little squirrel from
 
 ok then can you fictionkin the female brown squirrel :IHSVETEARS: - ellie
 
+okay we got the flirt master up in here,, i'll take you up on that offer :IHSVETEARS: -nid
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
