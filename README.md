@@ -1,6 +1,6 @@
-THAT WASNT ME IT WAS ELLIE GUSYS I AM NOT SHORT SHE IS!- NID
-
-I LITERALLY WAS WOKE UP FROWNING!!!
+<p align="center">
+  <img width="600" height="265" src="https://files.catbox.moe/8ooftw.jpg">
+</p>
 
 
 <p align="center">
