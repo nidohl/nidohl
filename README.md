@@ -1,32 +1,4 @@
 <p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/8ooftw.jpg">
-</p>
-
-<p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/cf2a1k.jpg">
-</p>
-
-<p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/kx8q3a.jpg">
-</p>
-
-<p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/dsbg7k.jpg">
-</p>
-
-<p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/uptu6u.jpg">
-</p>
-
-<p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/dp5pzc.jpg">
-</p>
-
-<p align="center">
-  <img width="600" height="265" src="https://files.catbox.moe/z5s1kd.jpg">
-</p>
-
-<p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
 
