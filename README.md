@@ -1,6 +1,7 @@
-<p align="center">
-  <img width="600" height="285" src="https://files.catbox.moe/4y4jwp.jpg">
-</p>
+THAT WASNT ME IT WAS ELLIE GUSYS I AM NOT SHORT SHE IS!- NID
+
+I LITERALLY WAS WOKE UP FROWNING!!!
+
 
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
