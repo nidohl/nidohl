@@ -8,7 +8,7 @@
   &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair&pause=1000&color=A4353E&center=true&width=435&lines=%E2%9D%9D+august%2C+honey%2C+you+were+mine.+%E2%9D%9E)](https://git.io/typing-svg)
 
 <p align="center">
-  <img width="400" height="600" src="https://files.catbox.moe/mv1yv2.png">
+  <img width="550" height="600" src="https://files.catbox.moe/mv1yv2.png">
 </p>
 
 &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; ![nid and ellie (1) (1)](https://github.com/user-attachments/assets/5fb1f4a4-58ad-4af1-b8dc-3de06eef394e)
