@@ -2,6 +2,8 @@ eyes pop out of skull and turn into hearts WHO IS THIS FINE WOMAN - ellie
 
 HEHHH HEYYYY... IM YOUR WOMAN 😍😍 -NID
 
+omg hey pretty girl im biting my nail - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
