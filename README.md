@@ -8,6 +8,8 @@ wanna make out -nid
 
 straight to the point?? anyways absolutely yes - ellie
 
+okay like im waiting?? I GOT A ROSE IN MY MOUTH AND HAND ON THE HIPS. -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
