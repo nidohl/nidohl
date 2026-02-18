@@ -2,6 +2,8 @@ i had to remove all the text i gotta keep it pg. - ellie
 
 whatever. im rolling my eyes. -nid.
 
+roll them on over to me so i can admire them heh - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
