@@ -32,6 +32,8 @@ IM AN ALL NATURAL TBH HEH... I DONT NEED TRAINING FIRST BASE ACCOMPLISHED SMIRK 
 
 okay hotshot not all of us are experienced,, -ellie
 
+ERMMM IM RUSTY SOOOO.... IDM TESTING IT OUT MAYBE A FEWW... MILLLLIONNNN... TIMESSS.... -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
