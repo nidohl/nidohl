@@ -24,6 +24,8 @@ BUT LIKE WE DONT GOTTA IF YOU WANT ME TO TELL YOU MORE RHYMES HEH.. YEAH! IM LIK
 
 learn how to multitask and do both. - ellie
 
+HOW DO I DO THAT. TEACH ME. STEP BY STEP. -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
