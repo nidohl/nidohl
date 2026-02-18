@@ -30,6 +30,8 @@ we should probably practice making out first for awhile just to make sure we per
 
 IM AN ALL NATURAL TBH HEH... I DONT NEED TRAINING FIRST BASE ACCOMPLISHED SMIRK -NID
 
+okay hotshot not all of us are experienced,, -ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
