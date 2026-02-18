@@ -14,6 +14,8 @@ keep talking like that and my hands might be on your hips too lowk - ellie
 
 HEH YEAH YEAH LIKE WELL.. KEEP TALKING LIKE THAT AND MY HANDS WILL ALSO BE ON YOUR HIPS MHM YEAH.. AND YOU KNOW WHAT RHYMES WITH HIPS?? LIPS AND MINE WILL BE ON YOURS #MAKEOUT. -NID
 
+you're like a hot dr seuss can you show me some more rhymes - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
