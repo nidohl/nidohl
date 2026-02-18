@@ -26,6 +26,8 @@ learn how to multitask and do both. - ellie
 
 HOW DO I DO THAT. TEACH ME. STEP BY STEP. -NID
 
+we should probably practice making out first for awhile just to make sure we perfect it ig - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
