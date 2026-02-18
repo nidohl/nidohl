@@ -18,6 +18,8 @@ you're like a hot dr seuss can you show me some more rhymes - ellie
 
 I FEAR IM TOO BUSY #MAKINGOUT WITH YOU TO SAY ANY RHYMES HEH.. -NID
 
+oh i wasnt aware we're mid-makeout rn,, okay locks in - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
