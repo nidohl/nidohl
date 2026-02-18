@@ -22,6 +22,8 @@ oh i wasnt aware we're mid-makeout rn,, okay locks in - ellie
 
 BUT LIKE WE DONT GOTTA IF YOU WANT ME TO TELL YOU MORE RHYMES HEH.. YEAH! IM LIKE RLLY GOOD AT THOSE. -NID
 
+learn how to multitask and do both. - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
