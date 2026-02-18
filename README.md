@@ -16,6 +16,8 @@ HEH YEAH YEAH LIKE WELL.. KEEP TALKING LIKE THAT AND MY HANDS WILL ALSO BE ON YO
 
 you're like a hot dr seuss can you show me some more rhymes - ellie
 
+I FEAR IM TOO BUSY #MAKINGOUT WITH YOU TO SAY ANY RHYMES HEH.. -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
