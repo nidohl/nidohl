@@ -10,6 +10,8 @@ straight to the point?? anyways absolutely yes - ellie
 
 okay like im waiting?? I GOT A ROSE IN MY MOUTH AND HAND ON THE HIPS. -NID
 
+keep talking like that and my hands might be on your hips too lowk - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
