@@ -18,6 +18,8 @@ okay so like im on my way, be ready (nonchalant) - ellie
 
 IM READY IVE BEEN READY. I GOT HANDS ON MY THIGHS AND AN APPLE IN MY MOUTH LIKE SOMEONES DINNER -NID
 
+the hands on your thighs in question are my hands actually :IHSVETEARS: - ellie 
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
