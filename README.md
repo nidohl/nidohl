@@ -6,6 +6,8 @@ roll them on over to me so i can admire them heh - ellie
 
 HEH WELL YOU BETTER COME OVER THEN I GOT A ROSE IN MY MOUTH WAITING FOR YOU. -NID
 
+rose wont be the only thing in ur mouth aha #rizz #kissingyouspiritually - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
