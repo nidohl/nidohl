@@ -22,6 +22,8 @@ the hands on your thighs in question are my hands actually :IHSVETEARS: - ellie
 
 WOAH HAND PLACEMENT. WHAT YOU GOT UR HANDS ON THERE FOR -NID
 
+oh ok mb ill take them off - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
