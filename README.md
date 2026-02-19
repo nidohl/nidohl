@@ -10,6 +10,8 @@ rose wont be the only thing in ur mouth aha #rizz #kissingyouspiritually - ellie
 
 OH REALLY?? IS TJAT SO?? -NID
 
+YEAH THATS SO ALRIGHT. - ELLIE
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
