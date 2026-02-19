@@ -20,6 +20,8 @@ IM READY IVE BEEN READY. I GOT HANDS ON MY THIGHS AND AN APPLE IN MY MOUTH LIKE 
 
 the hands on your thighs in question are my hands actually :IHSVETEARS: - ellie 
 
+WOAH HAND PLACEMENT. WHAT YOU GOT UR HANDS ON THERE FOR -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
