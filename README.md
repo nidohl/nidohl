@@ -1,31 +1,3 @@
-i had to remove all the text i gotta keep it pg. - ellie
-
-whatever. im rolling my eyes. -nid.
-
-roll them on over to me so i can admire them heh - ellie
-
-HEH WELL YOU BETTER COME OVER THEN I GOT A ROSE IN MY MOUTH WAITING FOR YOU. -NID
-
-rose wont be the only thing in ur mouth aha #rizz #kissingyouspiritually - ellie
-
-OH REALLY?? IS TJAT SO?? -NID
-
-YEAH THATS SO ALRIGHT. - ELLIE
-
-OKAY SO LIKE IM WAITING?? I DONT MF SEE YOU?? IM LIKE PUCKERED UP RN -NID
-
-okay so like im on my way, be ready (nonchalant) - ellie
-
-IM READY IVE BEEN READY. I GOT HANDS ON MY THIGHS AND AN APPLE IN MY MOUTH LIKE SOMEONES DINNER -NID
-
-the hands on your thighs in question are my hands actually :IHSVETEARS: - ellie 
-
-WOAH HAND PLACEMENT. WHAT YOU GOT UR HANDS ON THERE FOR -NID
-
-oh ok mb ill take them off - ellie
-
-okay so i NEVER said that. #ilikethat -NID
-
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
