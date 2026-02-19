@@ -14,6 +14,8 @@ YEAH THATS SO ALRIGHT. - ELLIE
 
 OKAY SO LIKE IM WAITING?? I DONT MF SEE YOU?? IM LIKE PUCKERED UP RN -NID
 
+okay so like im on my way, be ready (nonchalant) - ellie
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
