@@ -12,6 +12,8 @@ OH REALLY?? IS TJAT SO?? -NID
 
 YEAH THATS SO ALRIGHT. - ELLIE
 
+OKAY SO LIKE IM WAITING?? I DONT MF SEE YOU?? IM LIKE PUCKERED UP RN -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
