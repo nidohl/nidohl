@@ -8,6 +8,9 @@ IM LIKE STILL WAITING BTW. -NID
 
 i fell and broke all of my bones. - ellie
 
+it sokay ill give you mouth to mouth heh -nid
+
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
