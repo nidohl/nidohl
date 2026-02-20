@@ -4,6 +4,8 @@ HEH HEY THERE PRETTY GIRL... WANNA COME OVER TO MY PLACE HEH.. -NID
 
 IM SKILLFULLY CLIMBING THROUGH YOUR WINDOW MY LOVE - ELLIE
 
+IM LIKE STILL WAITING BTW. -NID
+
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
