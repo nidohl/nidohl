@@ -14,6 +14,8 @@ not sure how that helps my bones but you can put your mouth wherever you want to
 
 DO I GET FULL ACCESS -NID
 
+heh yeah - ellie
+
 
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
