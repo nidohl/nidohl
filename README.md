@@ -1,22 +1,3 @@
-WHAT A WOMAN,, BITES MY LIP - ELLIE
-
-HEH HEY THERE PRETTY GIRL... WANNA COME OVER TO MY PLACE HEH.. -NID
-
-IM SKILLFULLY CLIMBING THROUGH YOUR WINDOW MY LOVE - ELLIE
-
-IM LIKE STILL WAITING BTW. -NID
-
-i fell and broke all of my bones. - ellie
-
-it sokay ill give you mouth to mouth heh -nid
-
-not sure how that helps my bones but you can put your mouth wherever you want to - ellie
-
-DO I GET FULL ACCESS -NID
-
-heh yeah - ellie
-
-
 <p align="center">
   <img width="600" height="265" src="https://files.catbox.moe/biyz07.png">
 </p>
